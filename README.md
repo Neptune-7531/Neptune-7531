@@ -4,7 +4,7 @@
 - 💞️ I like self-learning and don't like being disturbed by others.That sounds mean，but I'm just not good at socializing.
 - 📫 How to reach me，WeChat：Cyan-qimusanyi,x:neptune_7531
 - - 😄 Pronouns: he/his
-- ⚡ Fun fact:How to define fun？Well,I have AS and I am a trans，is that interesting?idk，I am terrible at self-introduction.I look like a wiredo. （maybe i am）
+- ⚡ Fun fact:no
 
 <!---
 Neptune-7531/Neptune-7531 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.

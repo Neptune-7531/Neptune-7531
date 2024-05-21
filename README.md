@@ -2,7 +2,7 @@
 - 👀 I’m interested in natural science,video game.
 - 🌱 I’m currently learning English,python.
 - 💞️ I like self-learning and don't like being disturbed by others.That sounds mean，but I'm just not good at socializing.
-- 📫 How to reach me，WeChat：Cyan-qimusanyi,x:neptune_7531
+- 📫 How to reach me,no
 - - 😄 Pronouns: he/his
 - ⚡ Fun fact:no
 
